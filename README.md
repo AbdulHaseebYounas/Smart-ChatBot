@@ -74,5 +74,5 @@ Author
 
 **Abdul Haseeb Younas**
 
-- LinkedIn: 
+- LinkedIn:linkedin.com/in/abdul-haseeb-b188043b6
 
